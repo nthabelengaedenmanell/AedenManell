@@ -1,4 +1,4 @@
-# Aeden Mnaell
+# Aeden Manell
 
 
 
